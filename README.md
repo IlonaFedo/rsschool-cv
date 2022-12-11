@@ -1,1 +1,1 @@
-https://ilona-fedorovich.github.io/rsschool-cv/cv
+https://iloedorovich.github.io/rsschool-cv/cv
