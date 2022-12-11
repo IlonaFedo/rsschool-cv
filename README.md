@@ -1,1 +1,1 @@
-https://ilona-fedo.github.io/rsschool-cv/cv
+https://IlonaFedo.github.io/rsschool-cv/cv
