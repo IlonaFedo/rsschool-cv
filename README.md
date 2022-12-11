@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ilona-fedo.github.io/rsschool-cv/cv
